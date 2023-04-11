@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GigaKronk
+- 👋 Hi, I’m @Handsome_Bob
 - 👀 I’m interested in music,games, and making games
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on anything
